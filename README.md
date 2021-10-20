@@ -1,2 +1,3 @@
 # IDK
-# made by ImJust2Good1852 with randomx2o
+#ImJust2Good1852
+#randomx2o
